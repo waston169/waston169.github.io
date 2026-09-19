@@ -1,2 +1,1 @@
-# waston169.github.io
-# 欢迎来到我的网站
+# waston169.github.io read me
