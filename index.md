@@ -1,8 +1,7 @@
 ## Songchao Wang (王松超)
 
-**Email:** [waston669@gmail.com](mailto:waston669@gmail.com)
+**Email:** [waston669@gmail.com](mailto:waston669@gmail.com)  
 **ORCID:** [0009-0003-0050-6108](https://orcid.org/0009-0003-0050-6108)
----
 
 ## 👨‍🎓 About Me
 
